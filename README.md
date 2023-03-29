@@ -1,1 +1,1 @@
-# doldrumszz.github.io
+# doldrumszz.io
